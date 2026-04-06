@@ -170,34 +170,3 @@ Florescer
 
 Resplandecer
 
-Cintilar
-
-Explorar
-
-Persistir
-
-Conquistar
-
-Irradiar
-
-Navegar
-
-Pulsar
-
-Abraçar
-
-Cultivar
-
-Desbravar
-
-Harmonizar
-
-Inspirar
-
-Transcender
-
-Vislumbrar
-
-Zelar
-
-Prosperar
