@@ -40,8 +40,7 @@ Desapego
 Paciência
 
 Natureza e Ciência
-Petricor (cheiro de chuva na terra seca)
-
+Petricor 
 Crepúsculo
 
 Aurora
